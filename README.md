@@ -8,7 +8,7 @@ tree. I saw a magician once who put a lion
 in a jar and then waved his magic CARPET2 and
 made it disappear. I saw another [Diane:Adjective] magician who sawed
 a beautiful [Dona:Noun] in half right on the stage. If you practice hard,
-there are several [Ron:Adjective] magic tricks you can learn to do. For
+there are several cool magic tricks you can learn to do. For
 instance, you can learn how to take a glass of [Arun:Type of Liquid] and
 turn it into [Gio:Type of Liquid]. Or you can wave a [Ratna:Adjective] 
 wand in the air and make it turn into a red [Noun]. All you have
