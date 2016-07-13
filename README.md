@@ -4,7 +4,7 @@ Recently on TV, I saw an amazing magician and escape artist. Both of
 his [Diane:Plural Noun] were laced up in a straitjacket, and he was
 suspended by a [Dona:Noun] 60 feet in the air over a busy
 [Ron:Noun]. And he escaped! A man who can do that must be a real
-[Phuong:Noun]. I saw a magician once who put a [Arun:Animal]
+[Phuong:Noun]. I saw a magician once who put a {FixMe}
 in a [Gio:Noun] and then waved his magic [Ratna:Noun] and
 made it disappear. I saw another [Diane:Adjective] magician who sawed
 a beautiful [Dona:Noun] in half right on the stage. If you practice hard,
