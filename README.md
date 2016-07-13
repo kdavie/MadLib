@@ -6,7 +6,7 @@ suspended by a rope 60 feet in the air over a busy
 [Ron:Noun]. And he escaped! A man who can do that must be a real
 [Phuong:Noun]. I saw a magician once who put a lion
 in a jar and then waved his magic [Ratna:Noun] and
-made it disappear. I saw another [Diane:Adjective] magician who sawed
+made it disappear. I saw another outrageous magician who sawed
 a beautiful [Dona:Noun] in half right on the stage. If you practice hard,
 there are several [Ron:Adjective] magic tricks you can learn to do. For
 instance, you can learn how to take a glass of [Arun:Type of Liquid] and
