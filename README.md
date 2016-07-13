@@ -11,5 +11,5 @@ a beautiful girl in half right on the stage. If you practice hard,
 there are several cool magic tricks you can learn to do. For
 instance, you can learn how to take a glass of Lemonade and
 turn it into Wine. Or you can wave a [Ratna:Adjective] 
-wand in the air and make it turn into a red bus. All you have
+wand in the air and make it turn into a red car. All you have
 to do is memorize the secret magic word, "Cattywampus-Bumfuzzle"
